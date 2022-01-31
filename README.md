@@ -1,0 +1,4 @@
+# IT_Kunjal-Parmar_Get-Trends-
+GROUP MEMBER : KUNJAL PARMAR AND SHWETA SHRIWASTAVA
+IT 7TH SEM
+                
